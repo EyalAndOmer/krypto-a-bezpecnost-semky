@@ -1,0 +1,1 @@
+# krypto-a-bezpecnost-semky
